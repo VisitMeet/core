@@ -36,9 +36,9 @@ A traveled safely with new friends, spending less money.
 A and B visit local everything, as B and C know how to provide a joyful visit.
 A purchases from local economy, experiencing the real deal with real people.
 
-Note: If you visit me in Eugene, Oregon, you will be walking the streets with a saint in the know.
+Note: If you visit KathyOnu in Eugene, Oregon, you will be walking the streets with a saint in the know.
 People know their own local best deals, you will experience this as VisitMeet.org builds its connections.
-Those connedtions will first come from the programmers building this site, and their friends.
+Those connections will first come from the programmers building this site, and their friends.
 This is the wave of the future for a long time .. 
 Stellar programmers plant seeds of peaceful exchanges.
 
