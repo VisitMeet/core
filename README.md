@@ -34,9 +34,10 @@ C purchases services of those C knows who are local and happy to do business.
 C and B both are exchanging and bartering and selling and buying in their local economy.
 A traveled safely with new friends, spending less money.
 A and B visit local everything, as B and C know how to provide a joyful visit.
-A purchases from local economy, experiencing the real deal with real people.
+A, B and C purchase from local economy, experiencing the real deal with real people.
 
 Note: If you visit KathyOnu in Eugene, Oregon, you will be walking the streets with a saint in the know.
+If you visit Bishisht in Nepal, you might go to learn programming from him, and testing.
 People know their own local best deals, you will experience this as VisitMeet.org builds its connections.
 Those connections will first come from the programmers building this site, and their friends.
 This is the wave of the future for a long time .. 
