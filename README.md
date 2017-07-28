@@ -1,4 +1,4 @@
-sitmeet
+Visitmeet
 ================
 
 We will make wanderlust possible, because world is your home. 
